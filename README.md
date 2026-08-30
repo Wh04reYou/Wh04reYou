@@ -15,6 +15,6 @@ I'm not really a fan of super cold or distant people though, it just makes thing
 I'm not always looking at the screen 'cause I'm usually playing Roblox, so w2i!
 
 If I don't reply, I'm probably sleeping or doing something else.
-**i hate copycat...plz do not copy me**
+**i hate copycats...so i always use block. If u wanna take inspiration from me, plz tell me beforehand**
 
 Welcome to chat and make friends!^^
