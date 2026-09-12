@@ -4,7 +4,7 @@
 
 I'm a multi-fandom person, you can find me in pretty much any fandom! But my favorite spots are the Forsaken area or mcyt. AFK-ing with friends at the bottom-right corner of the map.
 
-individuals under 15, please DNI, interacting with people so young makes me nervous cuz i'm scared of children, they are evil and mean:(
+individuals under 14, please DNI, interacting with people so young makes me nervous cuz i'm scared of children, they are evil and mean:(
 
 I'm a multi-shipper—I pretty much vibe with whatever my friends are into. 
 
