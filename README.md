@@ -16,3 +16,5 @@ If I don't reply, I'm probably sleeping or doing something else.
 **i hate copycats...so i always use block. If u wanna take inspiration from me, plz tell me beforehand**
 
 Welcome to chat and make friends!^^
+
+**Info wip**
